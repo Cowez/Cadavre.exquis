@@ -8,3 +8,5 @@ le mathematicien
 les grands esprits de l’antiquité 
 dans l'univers les licornes existent quelques part
 petite peruche 
+socrate et sa cravate
+
